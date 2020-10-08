@@ -1,2 +1,6 @@
 # hello-world
-Just another repository
+
+"Think through the thought" - A Wellplan planned
+
+A Complete Thought, INC.
+
